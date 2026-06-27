@@ -50,6 +50,6 @@ Let's Connect
 
     LinkedIn: https://www.linkedin.com/in/shabani-shabani-a90b06340/
 
-    Professional Inquiries: [Your Email Address]
+    Professional Inquiries: shabanimoha248@gmail.com
 
 “Security is not a product, but a process.”
